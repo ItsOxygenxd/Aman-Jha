@@ -1,19 +1,19 @@
-# RICKKY SPAM BOT
+# Aman SPAM BOT
 
 <p align="center">
-  <img src="https://telegra.ph/file/68f77359a361634eaca47.jpg">
+  <img src="https://telegra.ph/file/d756c31ed0da60ab621a3.jpg">
 </p>
 
 -------------------------------------------------
 
 ## 𝚂𝚄𝙿𝙿𝙾𝚁𝚃 
                           
-<a href="https://t.me/DAREDEVIL_SUPPORT_GROUP"><img src="https://img.shields.io/badge/Join-SUPPORT%20GROUP-red.svg?logo=Telegram"></a>
-<a href="https://t.me/DAREDEVIL_SUPPORT"><img src="https://img.shields.io/badge/Join-SUPPORT%20CHANNEL-red.svg?logo=Telegram"></a>
+<a href="https://t.me/TEAM_SHIELD_X"><img src="https://img.shields.io/badge/Join-SUPPORT%20GROUP-red.svg?logo=Telegram"></a>
+<a href="https://t.me/Aman_Jha_Official"><img src="https://img.shields.io/badge/Join-SUPPORT%20CHANNEL-red.svg?logo=Telegram"></a>
 
 -------------------------------------------------
 
-## 𝙲𝚁𝙴𝙰𝚃𝙾𝚁 -[PRO](https://t.me/LMAO_1111)
+## 𝙲𝚁𝙴𝙰𝚃𝙾𝚁 -[PRO](https://t.me/Aman_Personal_Bot)
 
 -------------------------------------------------
 
